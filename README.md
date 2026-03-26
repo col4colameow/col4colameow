@@ -4,4 +4,4 @@
 </p>
 
 
-<p style="text-align: center;"> I usually go to people to cuddle or hug but i never speak unless you do first or i just ignore you! im never trying to seem rude or anthing its just im too socially awkward to talk to people, please respect that!! </p>
+<p style="text-align: center;"> I usually go hug people but i'll ignore you if you try to interact, not to rude or anything but sometimes i js dont wanna int... </p>
