@@ -1,8 +1,6 @@
 <p align="center">
-
-
-< (https://github.com/user-attachments/assets/d361be3e-06d0-492e-9454-376c02503978) />
-
+  
+  ![1774524773363-ef2765d1-2f0c-4c27-9987-5b20153cae67](https://github.com/user-attachments/assets/8b10b327-09dd-4867-93df-ad12ea46897a)
 </p>
 
 
